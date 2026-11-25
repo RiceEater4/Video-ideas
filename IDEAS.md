@@ -84,13 +84,58 @@ Delivery:
 54. "Ever pushed a door that clearly said **PULLLLL?!**"
 55. "Ever stubbed your toe on the **SAAAAME CORNEEEER?!**"
 
-## 😳 Sus (obvious, about parents)
+## 💀 "Would You…" Sus Questions (absurd, scream the prize)
 
-56. "Ever wondered why your parents play patty cake every single **NIIIIGHT?!?!**"
-57. "Ever wondered why your parents' bed squeaks but yours **DOESN'TTTT?!**"
-58. "Ever wondered why your mom yells 'oh my god' at night but she's not even **RELIGIOOOUS?!**"
-59. "Ever wondered why your parents give you 20 dollars and say 'take your **TIIIIME?!**'"
-60. "Ever wondered why your parents need 'quiet time' for exactly 3 **MINUUUUTES?!**"
+Read it dead serious like it's a real life decision. Scream the reward. Then stare at the camera.
+
+56. "Would you pin your homeboy to the wall to become a **TRILLIONAIIIIRE?!**"
+57. "Would you hold your homeboy's hand for a whole school day for a **LAMBORGHIIIINI?!**"
+58. "Would you let your homeboy sit on your lap at lunch for **FREE ROBUX FOREVEEEER?!**"
+59. "Would you stare into your homeboy's eyes for 10 minutes straight for a **PRIVATE JEEEET?!**"
+60. "Would you slow dance with your homeboy at prom to get **STRAIGHT A'S FOREVEEEER?!**"
+61. "Would you whisper 'goodnight king' to your homeboy every night for a **MANSIOOOON?!**"
+62. "Would you spoon your homeboy at a sleepover to never pay **TAXEEEES?!**"
+63. "Would you let your homeboy brush your hair for **UNLIMITED CHICK-FIL-AAAA?!**"
+64. "Would you share a milkshake with two straws with your homeboy for a **PS6 RIGHT NOOOOW?!**"
+65. "Would you call your homeboy 'babe' in front of the whole class for **A MILLION DOLLAAAARS?!**"
+66. "Would you hug your homeboy for 60 seconds with no pats on the back for **INFINITE V-BUUUUCKS?!**"
+67. "Would you write your homeboy a love letter and read it out loud for **NO MORE SCHOOOOL?!**"
+68. "Would you let your homeboy kiss your forehead to skip **ALL OF HIGH SCHOOOOL?!**"
+69. "Would you match outfits with your homeboy for a week to get **BIG FOOTBALL ARMS FOREVEEEER?!**"
+70. "Would you feed your homeboy grapes one by one to get **6 PACK ABS INSTANTLYYYY?!**"
+
+**Bonus:** do these as a "survey" format. Ask your actual friends on camera, and their face when they're thinking about it IS the video.
+
+## 😳 Sus Parent Ones (obvious, scream at the end)
+
+71. "Ever wondered why your parents play patty cake every single **NIIIIGHT?!?!**"
+72. "Ever wondered why your parents' bed squeaks but yours **DOESN'TTTT?!**"
+73. "Ever wondered why your mom yells 'oh my god' at night but she's not even **RELIGIOOOUS?!**"
+74. "Ever wondered why your parents give you 20 dollars and say 'take your **TIIIIME?!**'"
+75. "Ever wondered why your parents need 'quiet time' for exactly 3 **MINUUUUTES?!**"
+76. "Ever wondered why your dad is in a GREAT mood every **SUNDAY MORNIIIING?!**"
+77. "Ever wondered why your parents get mad when you come home **EARLYYYY?!**"
+78. "Ever wondered why your parents' room has a lock but **YOURS DOESN'TTTT?!**"
+79. "Ever wondered why your dad buys mom flowers and then sends you to a **SLEEPOVEEEER?!**"
+80. "Ever wondered why your parents say they're 'doing laundry' but the washing machine is **OOOOFF?!**"
+81. "Ever wondered why your mom calls your dad 'daddy' when **YOU'RE THE KIIIID?!**"
+82. "Ever wondered why your parents' 'massage' sounds like a **WRESTLING MAAAATCH?!**"
+83. "Ever wondered why your dad does push-ups right before **BEEEEDTIME?!**"
+84. "Ever wondered why your parents are always 'too tired' but go to bed at **8 P.M.?!**"
+85. "Ever wondered why your parents act weird when you ask where **BABIES COME FROOOOM?!**"
+
+## 🤡 Just Dumb & Funny (absurd questions)
+
+86. "Would you fight a kangaroo for a **LIFETIME SUPPLY OF NUGGEEEETS?!**"
+87. "Would you eat a whole raw onion like an apple to never go to **GYM CLASS AGAIIIIN?!**"
+88. "Would you let your grandma pick your outfits for a year for a **TESLAAAA?!**"
+89. "Would you say 'meow' after every sentence for a week for **TEN THOUSAND DOLLAAAARS?!**"
+90. "Would you call your teacher 'mom' on purpose for an **AUTOMATIC AAAAA?!**"
+91. "Would you wear crocs to prom for a **YACHHHHT?!**"
+92. "Would you let your little sibling do your haircut for a **GAMING PC?!**"
+93. "Would you sing the national anthem in the cafeteria for **NO HOMEWORK EVEEEER?!**"
+94. "Would you talk like a pirate for a whole school day for **FIVE THOUSAND DOLLAAAARS?!**"
+95. "Would you text your crush 'hi mom' for a **BRAND NEW IPHOOOONE?!**"
 
 ---
 
