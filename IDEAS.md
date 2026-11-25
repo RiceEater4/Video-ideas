@@ -1,166 +1,136 @@
-# Video Ideas: Scream Hooks
+# Video Ideas: Direct Scream Hooks
 
-**The format:** a normal question that builds up, then the last word gets **SCREAMED**, and the video ends.
-Say it calm, then lose it on the last word. Cut hard right after.
+**The format:** one short, direct statement. No "ever", no "did you know", no build-up. Say it like it's a fact, and **SCREAM** the key word.
+The scream can be at the end ("Never take a shower at **NIGHTTT**") or in the middle ("The giant squid has one of the **BIGGEST EYES** on Earth").
 
 Delivery:
-- Start quiet, almost whispering, so the scream hits harder.
-- Stretch the scream word: "NIIIIGHT", "FURIOUSSS".
+- Say it like you're 100% sure, like it's breaking news.
+- Short. If it takes more than 3 seconds to say, cut words.
 - Big on-screen text, with ONLY the scream word in caps and a different color.
-- Right after the scream, freeze frame, zoom on your face, or add a bass boost, then end.
+- Hard cut, zoom or bass boost right on the scream.
 
 ---
 
 ## 🏫 School
 
-1. "Ever had your teacher say 'I'll wait' and then actually **WAAAAIT?!**"
-2. "Ever had the teacher pick YOU the one time you weren't **LISTENIIIING?!**"
-3. "Ever studied all night and the test was on the chapter you **SKIIIIPPED?!**"
-4. "Ever finished a test early and everyone else is still on page **OOOONE?!**"
-5. "Ever had a sub who knows nothing but still gives you **DETENTIOOOON?!**"
-6. "Ever had your teacher say 'it's due tomorrow' when you **NEVER HEARD OF IIIIT?!**"
-7. "Ever asked to go to the bathroom and your teacher says 'I don't know, CAN **YOOOOU?!**'"
-8. "Ever had to read out loud and you said the word **COMPLETELY WROOOONG?!**"
-9. "Ever been called on for a question that was **TEN MINUTES AGOOOO?!**"
-10. "Ever got a 99 and your parents asked where the **OTHER POIIIINT WENT?!**"
-11. "Ever had a fire drill during the **ONE CLASS YOU LIIIIKE?!**"
-12. "Ever had the bell ring and the teacher says 'the bell doesn't dismiss you, **I DOOOO?!**'"
+1. "Teachers who say 'I'll wait' are **EVIIIIL**"
+2. "The teacher ALWAYS picks you when you're **NOT LISTENIIIING**"
+3. "The test is always on the chapter you **SKIIIIPPED**"
+4. "Substitutes have **ZERO POWEEEER**"
+5. "'Can I go to the bathroom' 'I don't know, **CAN YOUUUU**'"
+6. "A 99 is a **FAILURE** in an Asian household"
+7. "Group projects are **ONE PERSON DOING EVERYTHIIIING**"
+8. "The bell does **NOT** dismiss you, the **TEACHER DOOOOES**"
+9. "Fire drills only happen in the **ONE CLASS YOU LIIIIKE**"
+10. "Reading out loud in class is **TORTUUUURE**"
 
 ## 📱 Phone & Social Media
 
-13. "Ever sent a text to the **WRONG PERSOOOON?!**"
-14. "Ever watched an ad for 30 seconds and the **SKIP BUTTON NEVER CAAAAME?!**"
-15. "Ever accidentally liked someone's post from **3 YEARS AGOOOO?!**"
-16. "Ever been left on read by someone who's posting **RIGHT NOOOOW?!**"
-17. "Ever had your mom take your phone and **READ THE GROUP CHAAAAT?!**"
-18. "Ever dropped your phone on your face in **BEEEEED?!**"
-19. "Ever opened your screen time report and it says **NINE HOOOOURS?!**"
-20. "Ever had your phone at 2% with **NO CHARGER IN SIIIIGHT?!**"
-21. "Ever typed a whole paragraph and then deleted it and sent **'k'?!**" *(scream the K)*
-22. "Ever had your mom post you on Facebook **WITHOUT ASKIIIING?!**"
+11. "Texting the wrong person is the **WORST FEELING ON EAAAARTH**"
+12. "Your screen time is **NOT NINE HOOOOURS**"
+13. "Liking a post from 3 years ago is **SOCIAL SUIIIICIDE**"
+14. "Getting left on read by someone who's posting is a **WAR CRIIIIME**"
+15. "Your mom should **NEVER** see the **GROUP CHAAAAT**"
+16. "Dropping your phone on your face in bed **HURTS MORE THAN A BREAKUUUUP**"
+17. "2% battery with no charger is **REAL FEEEEAR**"
+18. "Moms posting you on Facebook should be **ILLEGAAAAL**"
 
 ## 🏠 Home & Parents
 
-23. "Ever had your mom say 'I'm not mad' when she's **SO MAAAAD?!**"
-24. "Ever had your dad say 'five more minutes' at the store and it's been **TWO HOOOOURS?!**"
-25. "Ever asked your mom where something is and she says 'if I find it, **YOU'RE IN TROUBLLLLE?!**'"
-26. "Ever had your parents ask you to fix the Wi-Fi like you **WORK FOR VERIZOOOON?!**"
-27. "Ever been called downstairs just to be **HANDED THE REMOOOOTE?!**"
-28. "Ever had your mom say 'go ask your dad' and your dad says 'go ask your **MOOOOM?!**'"
-29. "Ever had your parents say 'when I was your age' **ONE MORE TIIIIME?!**"
-30. "Ever had to clean your room because **GUESTS ARE COMIIIING?!**"
-31. "Ever had your mom open your door without **KNOCKIIIING?!**"
-32. "Ever had your dad turn off the AC when it's **A HUNDRED DEGREEEES?!**"
-33. "Ever had your mom say 'we'll see' and it means **NOOOOO?!**"
-34. "Ever been told 'we have food at home' and the food at home is **ONE EGGGGG?!**"
+19. "When your mom says 'I'm not mad' she is **SO MAAAAD**"
+20. "'Five more minutes' at the store means **TWO HOOOOURS**"
+21. "'We'll see' means **NOOOOO**"
+22. "Food at home is **ONE EGGGGG**"
+23. "Your dad does **NOT** pay for the AC to cool the **OUTSIIIIDE**"
+24. "You only got called downstairs to **HAND THEM THE REMOOOOTE**"
+25. "Your mom is **NOT** gonna knock **BEFORE COMING IIIIN**"
+26. "'Go ask your dad' and 'go ask your mom' is an **INFINITE LOOOOOP**"
+27. "Saying 'I'm bored' gets you **CHOOOOORES**"
+28. "Moms can hear a chip bag open from **ANOTHER STAAAATE**"
+29. "Touching the thermostat sends your dad a **NOTIFICATIOOOON**"
+30. "Dads **CANNOT** leave Home Depot in under **2 HOOOOURS**"
 
 ## 👯 Friends & Siblings
 
-35. "Ever had your friend say 'I'm 5 minutes away' and they're **STILL IN THE SHOWEEEER?!**"
-36. "Ever told a joke and your friend said it louder and **GOT ALL THE LAUUUUGHS?!**"
-37. "Ever had your sibling get away with something you'd be **GROUNDED FOOOOR?!**"
-38. "Ever had your little brother walk in while you're **ON FACETIIIIME?!**"
-39. "Ever had a friend borrow your hoodie and **NEVER GIVE IT BAAAACK?!**"
-40. "Ever had your friend say 'don't laugh' and then **YOU LAUUUUGHED?!**"
-41. "Ever had your sibling say 'I'm telling mom' over **ABSOLUTELY NOTHIIIING?!**"
+31. "'I'm 5 minutes away' means they're **STILL IN THE SHOWEEEER**"
+32. "Your friend who repeats your joke louder is a **CRIMINAAAAL**"
+33. "Your little sibling gets away with **EVERYTHIIIING**"
+34. "The hoodie you lent your friend is **NEVER COMING BAAAACK**"
+35. "Siblings snitch for **ABSOLUTELY NOTHIIIING**"
+36. "Single people are **WINNEEEERS**"
+37. "Having a crush is **EMOTIONAL DAMAAAAGE**"
 
 ## 🎮 Gaming
 
-42. "Ever lost a game because your teammate went **AFKKKKK?!**"
-43. "Ever had your mom call you for dinner in the **LAST CIRCLLLLE?!**"
-44. "Ever had a game update for **45 MINUUUUTES?!**"
-45. "Ever got killed by a **TEN YEAR OOOOLD?!**"
-46. "Ever had your parents unplug the router **MID-MAAAATCH?!**"
+38. "Getting called for dinner in the last circle is **BETRAYAAAAL**"
+39. "Your teammate going AFK is **WHY YOU LOOOOST**"
+40. "Getting killed by a 10 year old is **REAL PAAAAIN**"
+41. "A 45 minute update **RUINS YOUR WHOLE DAAAAY**"
+42. "Dads unplugging the router mid-match is **TREASOOOON**"
 
 ## 😴 Sleep, Food & Random
 
-47. "Ever woke up thinking you're late for school and it's **SATURDAAAAY?!**"
-48. "Ever laid down for a 20 minute nap and woke up in **NEXT WEEEEEK?!**"
-49. "Ever told yourself 'one more episode' and it's **4 A.M.?!**"
-50. "Ever opened the fridge 5 times hoping **NEW FOOD APPEAAAARED?!**"
-51. "Ever had your fries fall out of the **BAAAAG?!**"
-52. "Ever got to the front of the line and **FORGOT WHAT YOU WANTEEEED?!**"
-53. "Ever walked into a room and completely forgot **WHYYYYY?!**"
-54. "Ever pushed a door that clearly said **PULLLLL?!**"
-55. "Ever stubbed your toe on the **SAAAAME CORNEEEER?!**"
+43. "Never take a shower at **NIGHTTTT**"
+44. "Naps are **NEVER** 20 **MINUUUUTES**"
+45. "'One more episode' means **4 A.M.**"
+46. "Opening the fridge again will **NOT MAKE NEW FOOD APPEAAAAR**"
+47. "Waking up for school and it's Saturday is the **BEST FEELING ALIIIIVE**"
+48. "The fries at the bottom of the bag are the **BEST FRIIIIES**"
+49. "Pushing a pull door is **EVERYONE'S BIGGEST FEEEEAR**"
+50. "No Nut November is **NOT A JOOOOKE**"
 
-## 💀 Homeboy Series (the "Ever…" and "Did you know…" versions)
+## 💀 Homeboy Series
 
-Say it dead serious, scream the last word, then stare at the camera.
+51. "Pinning your homeboy to the wall makes you a **TRILLIONAIIIIRE**"
+52. "Saying 'no homo' before doing anything is **SUUUUS**"
+53. "Your homeboy saying 'goodnight king' after midnight is **NOT NORMAAAAL**"
+54. "Your homeboy texting 'u up' at 3 a.m. is a **RED FLAAAAG**"
+55. "Spooning your homeboy at a sleepover means **NO MORE TAXEEEES**"
+56. "A hug longer than 3 seconds with your homeboy is **ILLEGAAAAL**"
+57. "Your homeboy fixing your hair before a photo makes him your **GIRLFRIEEEEND**"
+58. "Sharing one milkshake with your homeboy is a **DATEEEE**"
+59. "Your homeboy getting jealous when you hang with other people is **CRAAAAZY**"
+60. "Calling your homeboy 'babe' gets you **STRAIGHT A'S FOREVEEEER**"
 
-56. "Did you know if you pin your homeboy to the wall you become a **TRILLIONAIIIIRE?!**"
-57. "Ever noticed your homeboy only says 'goodnight king' when it's **AFTER MIDNIIIIGHT?!**"
-58. "Did you know if you hold your homeboy's hand for a whole school day you get a **LAMBORGHIIIINI?!**"
-59. "Ever had your homeboy stare at you a little too long while you're **EATIIIING?!**"
-60. "Did you know if you spoon your homeboy at a sleepover you never have to pay **TAXEEEES?!**"
-61. "Ever had your homeboy say 'no homo' BEFORE he even **DID ANYTHIIIING?!**"
-62. "Did you know if you let your homeboy sit on your lap at lunch you get **FREE ROBUX FOREVEEEER?!**"
-63. "Ever had your homeboy text you 'u up' at **3 A.M.?!**"
-64. "Did you know if you slow dance with your homeboy at prom you get **STRAIGHT A'S FOREVEEEER?!**"
-65. "Ever had your homeboy fix your hair before a photo like he's your **GIRLFRIEEEEND?!**"
-66. "Did you know if you share a milkshake with two straws with your homeboy you get a **PS6 INSTANTLYYYY?!**"
-67. "Ever had your homeboy get jealous when you hang out with **SOMEONE ELLLLSE?!**"
-68. "Did you know if you feed your homeboy grapes one by one you get **6 PACK ABS?!**"
-69. "Ever had your homeboy hug you for a little TOO **LOOOOONG?!**"
-70. "Did you know if you call your homeboy 'babe' in front of the whole class you skip **ALL OF HIGH SCHOOOOL?!**"
+## 😳 Sus Parent Ones
 
-## 😳 Sus Parent Ones (obvious, scream at the end)
+61. "Your parents are **NOT** playing patty cake every **NIIIIGHT**"
+62. "Your parents' bed squeaks for a **REASOOOON**"
+63. "Your mom yelling 'oh my god' at night is **NOT PRAYIIIING**"
+64. "When your parents give you 20 dollars and say 'take your time' **DO NOT COME BACK EAAAARLY**"
+65. "Your parents' 'quiet time' lasts **3 MINUUUUTES**"
+66. "Your dad being in a great mood on Sunday morning is **NOT A COINCIDEEEENCE**"
+67. "Your parents' door has a lock for a **REASOOOON**"
+68. "Your parents doing 'laundry' with the washer **OFF** is **SUUUUS**"
+69. "Your mom calling your dad 'daddy' when **YOU'RE THE KID** is **WEIIIIRD**"
+70. "Your dad doing push-ups before bed is **NOT FOR FITNEEEESS**"
+71. "Your parents' 'massage' sounds like **WWEEEEE**"
+72. "Parents going to bed at 8 p.m. are **NOT TIIIIRED**"
 
-71. "Ever wondered why your parents play patty cake every single **NIIIIGHT?!?!**"
-72. "Ever wondered why your parents' bed squeaks but yours **DOESN'TTTT?!**"
-73. "Ever wondered why your mom yells 'oh my god' at night but she's not even **RELIGIOOOUS?!**"
-74. "Ever wondered why your parents give you 20 dollars and say 'take your **TIIIIME?!**'"
-75. "Ever wondered why your parents need 'quiet time' for exactly 3 **MINUUUUTES?!**"
-76. "Ever wondered why your dad is in a GREAT mood every **SUNDAY MORNIIIING?!**"
-77. "Ever wondered why your parents get mad when you come home **EARLYYYY?!**"
-78. "Ever wondered why your parents' room has a lock but **YOURS DOESN'TTTT?!**"
-79. "Ever wondered why your dad buys mom flowers and then sends you to a **SLEEPOVEEEER?!**"
-80. "Ever wondered why your parents say they're 'doing laundry' but the washing machine is **OOOOFF?!**"
-81. "Ever wondered why your mom calls your dad 'daddy' when **YOU'RE THE KIIIID?!**"
-82. "Ever wondered why your parents' 'massage' sounds like a **WRESTLING MAAAATCH?!**"
-83. "Ever wondered why your dad does push-ups right before **BEEEEDTIME?!**"
-84. "Ever wondered why your parents are always 'too tired' but go to bed at **8 P.M.?!**"
-85. "Ever wondered why your parents act weird when you ask where **BABIES COME FROOOOM?!**"
+## 🤯 Real Facts
 
-## 🤯 Facts (real facts, scream the crazy part)
+All true. Scream the part that sounds fake.
 
-All of these are real. Say the setup calm, scream the part that sounds fake.
-
-86. "Did you know an octopus has **THREE HEAAAARTS?!**"
-87. "Did you know wombats poop **CUUUUBES?!**"
-88. "Did you know Scotland's national animal is a **UNICORRRRN?!**"
-89. "Did you know bananas are berries but strawberries **AREN'TTTT?!**"
-90. "Did you know sea otters hold hands when they sleep so they **DON'T FLOAT AWAAAAY?!**"
-91. "Did you know honey never goes bad, even after **THOUSANDS OF YEAAAARS?!**"
-92. "Did you know a shrimp's heart is in its **HEAAAAD?!**"
-93. "Did you know Cleopatra lived closer to the iPhone than to the building of the **PYRAMIIIIDS?!**"
-94. "Did you know Oxford University is older than the **AZTEC EMPIIIIRE?!**"
-95. "Did you know a group of flamingos is called a **FLAMBOYAAAANCE?!**"
-96. "Did you know you can't hum while **HOLDING YOUR NOOOOSE?!**" (people will try it)
-97. "Did you know a pineapple takes about **TWO YEARS TO GROOOOW?!**"
-98. "Did you know cows have **BEST FRIEEEENDS?!**"
-99. "Did you know your stomach gets a whole new lining every **FEW DAAAAYS?!**"
-100. "Did you know there are more trees on Earth than **STARS IN THE MILKY WAAAAY?!**"
-
-## 🤡 Fake "Facts" (dumb on purpose)
-
-Say it like it's real science. The more serious, the funnier.
-
-101. "Did you know if you say 'Bloody Mary' three times your mom asks you to **DO THE DIIIISHES?!**"
-102. "Did you know every time you skip leg day a gym bro **LOSES HIS WIIIINGS?!**"
-103. "Did you know if you open the fridge 10 times, food **STILL DOESN'T APPEAAAAR?!**"
-104. "Did you know if you say 'I'm bored' your mom gains the power to give you **CHOOOOORES?!**"
-105. "Did you know if your mom says 'we'll see' there is a **0% CHANCE OF YEEEES?!**"
-106. "Did you know if you sneeze in class someone you don't know says **'BLESS YOUUUU'?!**"
-107. "Did you know your teacher can sense when you **DIDN'T DO THE READIIIING?!**"
-108. "Did you know dads physically cannot leave Home Depot in **UNDER 2 HOOOOURS?!**"
-109. "Did you know if you touch the thermostat your dad gets a **NOTIFICATIOOOON?!**"
-110. "Did you know moms can hear you open a bag of chips from **ANOTHER STAAAATE?!**"
+73. "The giant squid has one of the **BIGGEST EYES** on Earth"
+74. "An octopus has **THREE HEAAAARTS**"
+75. "Wombats poop **CUUUUBES**"
+76. "Scotland's national animal is a **UNICORRRRN**"
+77. "Bananas are berries, strawberries are **NOOOOT**"
+78. "Sea otters **HOLD HANDS** when they sleep"
+79. "Honey **NEVER GOES BAAAAD**"
+80. "A shrimp's heart is in its **HEAAAAD**"
+81. "Cleopatra lived closer to the iPhone than to the **PYRAMIIIIDS**"
+82. "Oxford University is older than the **AZTEC EMPIIIIRE**"
+83. "A group of flamingos is called a **FLAMBOYAAAANCE**"
+84. "You **CAN'T HUM** while holding your nose" (everyone will try it)
+85. "Pineapples take **TWO YEARS** to grow"
+86. "Cows have **BEST FRIEEEENDS**"
+87. "There are more trees on Earth than **STARS IN THE MILKY WAAAAY**"
 
 ---
 
 ## Making it a series
 
-- **Pick one category per week** (School Week, Parents Week) so people come back for the next one.
-- **Same scream style every time:** same zoom, same sound effect, same text color.
-- **Comment bait:** "which one happened to YOU" or "part 2??"
+- **Pick one category per week** (School Week, Parents Week, Facts Week) so people come back.
+- **Same scream style every time:** same zoom, same sound effect, same text color. It becomes your signature.
+- **Comment bait in the caption:** "agree or disagree?" works great with direct statements because people love arguing.
