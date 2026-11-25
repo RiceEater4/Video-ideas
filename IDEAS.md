@@ -84,27 +84,25 @@ Delivery:
 54. "Ever pushed a door that clearly said **PULLLLL?!**"
 55. "Ever stubbed your toe on the **SAAAAME CORNEEEER?!**"
 
-## 💀 "Would You…" Sus Questions (absurd, scream the prize)
+## 💀 Homeboy Series (the "Ever…" and "Did you know…" versions)
 
-Read it dead serious like it's a real life decision. Scream the reward. Then stare at the camera.
+Say it dead serious, scream the last word, then stare at the camera.
 
-56. "Would you pin your homeboy to the wall to become a **TRILLIONAIIIIRE?!**"
-57. "Would you hold your homeboy's hand for a whole school day for a **LAMBORGHIIIINI?!**"
-58. "Would you let your homeboy sit on your lap at lunch for **FREE ROBUX FOREVEEEER?!**"
-59. "Would you stare into your homeboy's eyes for 10 minutes straight for a **PRIVATE JEEEET?!**"
-60. "Would you slow dance with your homeboy at prom to get **STRAIGHT A'S FOREVEEEER?!**"
-61. "Would you whisper 'goodnight king' to your homeboy every night for a **MANSIOOOON?!**"
-62. "Would you spoon your homeboy at a sleepover to never pay **TAXEEEES?!**"
-63. "Would you let your homeboy brush your hair for **UNLIMITED CHICK-FIL-AAAA?!**"
-64. "Would you share a milkshake with two straws with your homeboy for a **PS6 RIGHT NOOOOW?!**"
-65. "Would you call your homeboy 'babe' in front of the whole class for **A MILLION DOLLAAAARS?!**"
-66. "Would you hug your homeboy for 60 seconds with no pats on the back for **INFINITE V-BUUUUCKS?!**"
-67. "Would you write your homeboy a love letter and read it out loud for **NO MORE SCHOOOOL?!**"
-68. "Would you let your homeboy kiss your forehead to skip **ALL OF HIGH SCHOOOOL?!**"
-69. "Would you match outfits with your homeboy for a week to get **BIG FOOTBALL ARMS FOREVEEEER?!**"
-70. "Would you feed your homeboy grapes one by one to get **6 PACK ABS INSTANTLYYYY?!**"
-
-**Bonus:** do these as a "survey" format. Ask your actual friends on camera, and their face when they're thinking about it IS the video.
+56. "Did you know if you pin your homeboy to the wall you become a **TRILLIONAIIIIRE?!**"
+57. "Ever noticed your homeboy only says 'goodnight king' when it's **AFTER MIDNIIIIGHT?!**"
+58. "Did you know if you hold your homeboy's hand for a whole school day you get a **LAMBORGHIIIINI?!**"
+59. "Ever had your homeboy stare at you a little too long while you're **EATIIIING?!**"
+60. "Did you know if you spoon your homeboy at a sleepover you never have to pay **TAXEEEES?!**"
+61. "Ever had your homeboy say 'no homo' BEFORE he even **DID ANYTHIIIING?!**"
+62. "Did you know if you let your homeboy sit on your lap at lunch you get **FREE ROBUX FOREVEEEER?!**"
+63. "Ever had your homeboy text you 'u up' at **3 A.M.?!**"
+64. "Did you know if you slow dance with your homeboy at prom you get **STRAIGHT A'S FOREVEEEER?!**"
+65. "Ever had your homeboy fix your hair before a photo like he's your **GIRLFRIEEEEND?!**"
+66. "Did you know if you share a milkshake with two straws with your homeboy you get a **PS6 INSTANTLYYYY?!**"
+67. "Ever had your homeboy get jealous when you hang out with **SOMEONE ELLLLSE?!**"
+68. "Did you know if you feed your homeboy grapes one by one you get **6 PACK ABS?!**"
+69. "Ever had your homeboy hug you for a little TOO **LOOOOONG?!**"
+70. "Did you know if you call your homeboy 'babe' in front of the whole class you skip **ALL OF HIGH SCHOOOOL?!**"
 
 ## 😳 Sus Parent Ones (obvious, scream at the end)
 
@@ -124,18 +122,40 @@ Read it dead serious like it's a real life decision. Scream the reward. Then sta
 84. "Ever wondered why your parents are always 'too tired' but go to bed at **8 P.M.?!**"
 85. "Ever wondered why your parents act weird when you ask where **BABIES COME FROOOOM?!**"
 
-## 🤡 Just Dumb & Funny (absurd questions)
+## 🤯 Facts (real facts, scream the crazy part)
 
-86. "Would you fight a kangaroo for a **LIFETIME SUPPLY OF NUGGEEEETS?!**"
-87. "Would you eat a whole raw onion like an apple to never go to **GYM CLASS AGAIIIIN?!**"
-88. "Would you let your grandma pick your outfits for a year for a **TESLAAAA?!**"
-89. "Would you say 'meow' after every sentence for a week for **TEN THOUSAND DOLLAAAARS?!**"
-90. "Would you call your teacher 'mom' on purpose for an **AUTOMATIC AAAAA?!**"
-91. "Would you wear crocs to prom for a **YACHHHHT?!**"
-92. "Would you let your little sibling do your haircut for a **GAMING PC?!**"
-93. "Would you sing the national anthem in the cafeteria for **NO HOMEWORK EVEEEER?!**"
-94. "Would you talk like a pirate for a whole school day for **FIVE THOUSAND DOLLAAAARS?!**"
-95. "Would you text your crush 'hi mom' for a **BRAND NEW IPHOOOONE?!**"
+All of these are real. Say the setup calm, scream the part that sounds fake.
+
+86. "Did you know an octopus has **THREE HEAAAARTS?!**"
+87. "Did you know wombats poop **CUUUUBES?!**"
+88. "Did you know Scotland's national animal is a **UNICORRRRN?!**"
+89. "Did you know bananas are berries but strawberries **AREN'TTTT?!**"
+90. "Did you know sea otters hold hands when they sleep so they **DON'T FLOAT AWAAAAY?!**"
+91. "Did you know honey never goes bad, even after **THOUSANDS OF YEAAAARS?!**"
+92. "Did you know a shrimp's heart is in its **HEAAAAD?!**"
+93. "Did you know Cleopatra lived closer to the iPhone than to the building of the **PYRAMIIIIDS?!**"
+94. "Did you know Oxford University is older than the **AZTEC EMPIIIIRE?!**"
+95. "Did you know a group of flamingos is called a **FLAMBOYAAAANCE?!**"
+96. "Did you know you can't hum while **HOLDING YOUR NOOOOSE?!**" (people will try it)
+97. "Did you know a pineapple takes about **TWO YEARS TO GROOOOW?!**"
+98. "Did you know cows have **BEST FRIEEEENDS?!**"
+99. "Did you know your stomach gets a whole new lining every **FEW DAAAAYS?!**"
+100. "Did you know there are more trees on Earth than **STARS IN THE MILKY WAAAAY?!**"
+
+## 🤡 Fake "Facts" (dumb on purpose)
+
+Say it like it's real science. The more serious, the funnier.
+
+101. "Did you know if you say 'Bloody Mary' three times your mom asks you to **DO THE DIIIISHES?!**"
+102. "Did you know every time you skip leg day a gym bro **LOSES HIS WIIIINGS?!**"
+103. "Did you know if you open the fridge 10 times, food **STILL DOESN'T APPEAAAAR?!**"
+104. "Did you know if you say 'I'm bored' your mom gains the power to give you **CHOOOOORES?!**"
+105. "Did you know if your mom says 'we'll see' there is a **0% CHANCE OF YEEEES?!**"
+106. "Did you know if you sneeze in class someone you don't know says **'BLESS YOUUUU'?!**"
+107. "Did you know your teacher can sense when you **DIDN'T DO THE READIIIING?!**"
+108. "Did you know dads physically cannot leave Home Depot in **UNDER 2 HOOOOURS?!**"
+109. "Did you know if you touch the thermostat your dad gets a **NOTIFICATIOOOON?!**"
+110. "Did you know moms can hear you open a bag of chips from **ANOTHER STAAAATE?!**"
 
 ---
 
