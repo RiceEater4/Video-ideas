@@ -1,66 +1,75 @@
 # Video Ideas: Scream Hooks
 
-**The format:** a normal question that builds up, then one word gets **SCREAMED**, either at the end or in the middle.
-The scream word is the punchline. Say it calmly, then lose it.
+**The format:** a normal question that builds up, then one word gets **SCREAMED**.
+Say it calm, then lose it on the last word. Cut hard right after the scream.
 
-- **Scream at the end:** "Ever wondered why your parents play patty cake every single **NIIIIGHT?!?!**"
-- **Scream in the middle:** "Ever talked to someone so dumb it made you **FURIOUSSS**, and then they keep talking?"
-
-No POVs. Every hook is a question or a statement to the camera.
-
-How to deliver it:
-- Start the line quiet, almost whispering, so the scream lands harder.
-- Stretch the scream word: "NIIIIGHT", "FURIOUSSS", "WHYYYY".
-- Big on-screen text with ONLY the scream word in caps and a different color.
-- Cut hard right after the scream: freeze frame, zoom on your face, or a bass boost.
+Delivery:
+- Start quiet, almost whispering, so the scream hits harder.
+- Stretch the scream word: "NIIIIGHT", "FURIOUSSS".
+- Big on-screen text, with ONLY the scream word in caps and a different color.
+- Right after the scream, freeze frame, zoom on your face, or add a bass boost, then end the video.
 
 ---
 
-## 😳 Sus Ones (innuendo, scream at the end)
+## 😳 Sus Ones (obvious, scream at the end)
+
+The joke should land instantly. Everyone knows what's going on, nobody says it out loud.
 
 1. "Ever wondered why your parents play patty cake every single **NIIIIGHT?!?!**"
-2. "Ever wondered why your dad says he's going to 'fix mom's pipes' every **SATURDAAAAY?!**"
-3. "Ever wondered why your parents' bed squeaks but yours **DOESN'TTTT?!**"
-4. "Ever wondered why your parents send you to grandma's every single **WEEKEEEEND?!**"
-5. "Ever wondered why your mom says 'not tonight, I have a headache' when dad just asked to watch **FOOTBAAALL?!**"
-6. "Ever wondered why your parents need 'quiet time' for exactly 3 **MINUUUUTES?!**"
-7. "Ever wondered why your sister's 'study buddy' never brings a **BOOOOK?!**"
-8. "Ever wondered why your parents lock the door to 'wrap presents' in **JULYYYY?!**"
-9. "Ever wondered why your dad comes out of the room and says he's 'tired from working **OUUUUT?!**'"
-10. "Ever wondered why you have a little brother you were **NEVER WARNED ABOUUUUT?!**"
+2. "Ever wondered why your parents' bed squeaks but yours **DOESN'TTTT?!**"
+3. "Ever wondered why your parents need 'quiet time' for exactly 3 **MINUUUUTES?!**"
+4. "Ever wondered why your parents' door is always locked when they're 'taking a **NAAAAP?!**'"
+5. "Ever wondered why your mom comes out of the room with her hair messed up, but she was 'just **CLEEEANING?!**'"
+6. "Ever wondered why your parents turn the TV up SO loud but nobody's **WATCHING IIIIT?!**"
+7. "Ever wondered why your parents give you 20 dollars to go to the store and say 'take your **TIIIIME?!**'"
+8. "Ever wondered why your dad walks out of the room sweating like he just ran a **MARATHOOOON?!**"
+9. "Ever wondered why your parents say they were 'wrestling' but neither of them watches **WWEEEEE?!**"
+10. "Ever wondered why your mom yells 'oh my god' at night but she's not even **RELIGIOOOUS?!**"
+11. "Ever wondered why the headboard keeps knocking on your wall like it wants to **COME IIIIN?!**"
+12. "Ever wondered why your parents always change the sheets on a **TUESDAAAAY?!**"
+13. "Ever wondered why your dad is suddenly SO nice to your mom on **DATE NIIIIGHT?!**"
+14. "Ever wondered why your parents send you to grandma's every single **WEEKEEEEND?!**"
+15. "Ever wondered why your parents come out of the room and act like nothing **HAPPENEEED?!**"
+16. "Ever wondered why your mom's 'back hurts' every Sunday **MORNIIIING?!**"
+17. "Ever wondered why your parents 'went to bed early' but you hear them still **AWAAAAKE?!**"
+18. "Ever wondered why you have a little brother you were **NEVER WARNED ABOUUUUT?!**"
+19. "Ever wondered why your parents yell 'DON'T COME IN' before you even **KNOOOOCK?!**"
+20. "Ever wondered why your neighbors moved out right after your parents' **ANNIVERSAAAARY?!**"
 
-## 😤 Rage Ones (scream in the middle)
+## 😤 Rage Ones (build up, scream, END)
 
-11. "Ever talked to someone so dumb it made you **FURIOUSSS**, and then they say 'calm down'?"
-12. "Ever had your mom yell your full name so loud you **STOPPED BREATHIIING**, and then she just asks where the remote is?"
-13. "Ever had a teacher say 'this won't be on the test' and then it was the **WHOLE TEEEEST**, and she looked you dead in the eye?"
-14. "Ever got so close to beating a level that you **SCREAMED AT YOUR CONTROLLEEER** and your mom thought someone died?"
-15. "Ever had a sibling touch your stuff so many times you **LOST YOUR MIIIIND** and then YOU got grounded?"
-16. "Ever been so hungry you **ATE THE WHOLE FRIIIIDGE** and your dad asks 'who ate my leftovers'?"
-17. "Ever had someone chew so loud next to you that you **WANTED TO MOVE COUNTRIIIES**, and they ask what's wrong?"
-18. "Ever had your phone die at 1% after you **CHARGED IT ALL NIIIIGHT**, and the charger was never plugged into the wall?"
-19. "Ever had the Wi-Fi cut out RIGHT when you **WERE ABOUT TO WIIIIN**, and your dad says 'I was just restarting the router'?"
-20. "Ever had someone say 'no offense' and then **SAY THE MOST OFFENSIVE THING EVEEER**?"
+No follow-up line. The video ends on the scream.
+
+21. "Ever talked to someone so dumb it made you **FURIOUSSS?!**"
+22. "Ever had someone chew so loud next to you it made you want to **EXPLOOOODE?!**"
+23. "Ever had your sibling touch your stuff so many times you **LOST YOUR MIIIIND?!**"
+24. "Ever had your teacher say it won't be on the test and it's the **WHOLE TEEEEST?!**"
+25. "Ever had the Wi-Fi cut out right when you were about to **WIIIIN?!**"
+26. "Ever had your phone die after you charged it **ALL NIIIIGHT?!**"
+27. "Ever been so close to beating a level that you **THREW YOUR CONTROLLEEER?!**"
+28. "Ever had someone say 'no offense' and then say the most **OFFENSIVE THING EVEEER?!**"
+29. "Ever had your mom yell your full name from downstairs so loud you **STOPPED BREATHIIING?!**"
+30. "Ever had someone tell you to calm down when you were already **CAAAALM?!**"
+31. "Ever had a group project where you did **ALL THE WOOOORK?!**"
+32. "Ever had someone spoil the ending of a show you **JUST STAAAARTED?!**"
+33. "Ever had someone take the last slice of pizza that you **CALLED DIBS OOOON?!**"
+34. "Ever had your little sibling snitch on you for something **THEY DIIIID?!**"
+35. "Ever had someone wake you up just to ask if you were **SLEEEEPING?!**"
 
 ## 😩 Relatable Ones (scream at the end)
 
-21. "Ever said 'you too' when the waiter said enjoy your **MEEEEAL?!**"
-22. "Ever walked into a room and completely forgot **WHYYYYY?!**"
-23. "Ever waved back at someone who was waving at the person **BEHIND YOUUUU?!**"
-24. "Ever pushed a door that clearly said **PULLLLL?!**"
-25. "Ever heard your mom on the phone switch to her nice voice and then turn around and look at **YOUUUU?!**"
-26. "Ever been told 'we have food at home' and the food at home is **ONE EGGGGG?!**"
-27. "Ever had your mom say 'we'll see' and you just knew it meant **NOOOOO?!**"
-28. "Ever laid down for a 20 minute nap and woke up in **NEXT WEEEEEK?!**"
-29. "Ever had your teacher say 'find a partner' and your best friend is **ABSEEEEENT?!**"
-30. "Ever told your mom you're bored and she gave you **CHOOOOORES?!**"
+36. "Ever said 'you too' when the waiter said enjoy your **MEEEEAL?!**"
+37. "Ever walked into a room and completely forgot **WHYYYYY?!**"
+38. "Ever pushed a door that clearly said **PULLLLL?!**"
+39. "Ever been told 'we have food at home' and the food at home is **ONE EGGGGG?!**"
+40. "Ever laid down for a 20 minute nap and woke up in **NEXT WEEEEEK?!**"
+41. "Ever told your mom you're bored and she gave you **CHOOOOORES?!**"
 
 ---
 
 ## Making it a series
 
-- **Same opener every time:** always start with "Ever wondered why…" or "Ever talked to someone…" so people recognize it instantly.
+- **Same opener every time:** "Ever wondered why…" for sus ones, "Ever had…" or "Ever talked to…" for rage ones.
 - **Same scream style every time:** same zoom, same sound effect, same text color. It becomes your signature.
-- **Mix the types:** post a sus one, then a rage one, then a relatable one so the feed doesn't get repetitive.
-- **Comment bait:** at the end, put "comment the word that made YOU scream" or "part 2??"
-- **Duets:** have a friend or parent react with a dead-silent stare after the scream.
+- **Mix the types:** sus, then rage, then sus, so the feed doesn't feel repetitive.
+- **Comment bait in the caption:** "which one made YOU scream" or "part 2??"
